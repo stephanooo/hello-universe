@@ -1,5 +1,5 @@
 # hello-universe
-because the world isn't enough
+Because the world isn't enough.
 
-Hiya!
-I am the Stepheroni. I detest walks on the beach, for they make my toes sandy. JkLoL.
+Hello,
+I am the Stephanie Grasse. I detest walks on the beach, because they make my toes sandy. I am just kidding; laugh out loud.
